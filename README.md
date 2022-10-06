@@ -1,7 +1,7 @@
-# wowgame168
-## 👉 [สมัคร wowgame168 สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
-## 👉 [ทางเข้า wowgame168 สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
-## 👉 [wowgame168  เครดิตฟรี](https://bit.ly/3SjoJOT) 👈🏻
+# vegas77slot
+## 👉 [สมัคร vegas77slot สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
+## 👉 [ทางเข้า vegas77slot สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
+## 👉 [vegas77slot  เครดิตฟรี](https://bit.ly/3SjoJOT) 👈🏻
 ## 👉 [ติดต่อพนักงาน](https://bit.ly/3BIgaGa) 👈🏻
 
 
