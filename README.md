@@ -1,7 +1,7 @@
-# vegas77slot
-## 👉 [สมัคร vegas77slot สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
-## 👉 [ทางเข้า vegas77slot สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
-## 👉 [vegas77slot  เครดิตฟรี](https://bit.ly/3SjoJOT) 👈🏻
+# xgamebet
+## 👉 [สมัคร xgamebet สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
+## 👉 [ทางเข้า xgamebet สล็อตpg](https://bit.ly/3SjoJOT) 👈🏻
+## 👉 [xgamebet  เครดิตฟรี](https://bit.ly/3SjoJOT) 👈🏻
 ## 👉 [ติดต่อพนักงาน](https://bit.ly/3BIgaGa) 👈🏻
 
 
